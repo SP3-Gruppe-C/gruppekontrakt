@@ -1,1 +1,1 @@
-# gruppekontrakt
+# Gruppekontrakt
